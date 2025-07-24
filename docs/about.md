@@ -1,13 +1,4 @@
-# About My New Software
+# 手机直播软件大全
 
-At My New Software, we are committed to delivering the best software solutions for our customers.
-
-## Our Mission
-
-To innovate and provide top-notch software that meets the needs of our users.
-
-## Our Values
-
-- **Quality**: We strive for excellence in everything we do.
-- **Integrity**: We act with honesty and integrity in all our actions.
-- **Customer Satisfaction**: Our customers' satisfaction is our top priority.
+手机直播软件大全
+通过手机直播软件能够随时随地观看直播，直播的内容丰富，可选择空间多，是不错的休闲娱乐方式。为此，本站整理制作了手机直播软件大全，其中提供了如抖音、快手、斗鱼、虎牙、网易cc直播、哔哩哔哩直播姬等多款受欢迎的手机直播APP，是您在工作生活之余休闲的好选择，欢迎广大用户前来本站挑选下载使用！
